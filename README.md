@@ -10,5 +10,5 @@ About me:
 - 🌱 I’m currently learning HTML
 - 💬 Ask me about anything related to water management
 - 😄 Pronouns: she/her
-- ❤️ I love video games, attack on titan and chocolate cake
+- ❤️ I love video games, anime and cheesecake
 
